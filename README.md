@@ -1,3 +1,2 @@
-https://tenor.com/bwtmf.gif
-
+<div class="tenor-gif-embed" data-postid="20093337" data-share-method="host" data-aspect-ratio="1.15523" data-width="100%"><a href="https://tenor.com/view/jade-harley-homestuck-gif-20093337">Jade Harley Homestuck Sticker</a>from <a href="https://tenor.com/search/jade+harley-stickers">Jade Harley Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
