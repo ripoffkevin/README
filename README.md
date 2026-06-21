@@ -1,6 +1,6 @@
 <img width="348" height="296" alt="jade-harley-homestuck (1)" src="https://github.com/user-attachments/assets/6b14c57c-8ce1-4f1b-b5b8-6649c1c519fc" />
 
-call me ripoffkevin or marco, i usually sit at the protree or im talking to friends while making a pony
+call me ripoffkevin or marco, i usually walk around im talking to friends
 
 i will block you if you dont like me. its not all that hard to leave me alone if you dislike my stances on things
 
