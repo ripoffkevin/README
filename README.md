@@ -11,11 +11,6 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="56" alt="tumblr_cb88820461683dc282f18f6cd8a6e968_de6e50be_100" src="https://github.com/user-attachments/assets/0b84ce01-34ab-4004-b0eb-110199f958e9" />
 <img width="99" height="56" alt="tumblr_5f7baf5b8c8170d3fb00ed5907a7610b_9f616828_100" src="https://github.com/user-attachments/assets/f521a51d-d0ab-4459-bcb9-b17cf01ca44f" />
 <img width="99" height="56" alt="tumblr_4e1cc590e2be7c55527500f1142ac5ea_c341fd87_100" src="https://github.com/user-attachments/assets/a44e423c-273a-434e-9bb0-ad6b9c7d7b0b" />
-<img width="99" height="56" alt="tumblr_7d95cccd1ef31aa7696df1b8c0bbae62_850bc8aa_100" src="https://github.com/user-attachments/assets/61cf9b50-9bc9-46f0-9076-32df62def512" /><img width="322" height="237" alt="Untitled37_20260626124022" src="https://github.com/user-attachments/assets/6a71042e-c4c1-4c74-88bd-117d6091d2b8" />
-
-
-
-
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=76e5ba&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31pocsnw4c7rgtmplpesl2m55g74&redirect=true)
