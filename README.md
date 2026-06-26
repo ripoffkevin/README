@@ -12,7 +12,8 @@ if i'm in jax pony, DO NOT TALK ABOUT TADC UNLESS I START!!!!!!!!! i will likely
 <img width="99" height="56" alt="tumblr_5f7baf5b8c8170d3fb00ed5907a7610b_9f616828_100" src="https://github.com/user-attachments/assets/f521a51d-d0ab-4459-bcb9-b17cf01ca44f" />
 <img width="99" height="56" alt="tumblr_4e1cc590e2be7c55527500f1142ac5ea_c341fd87_100" src="https://github.com/user-attachments/assets/a44e423c-273a-434e-9bb0-ad6b9c7d7b0b" />
 <img width="99" height="56" alt="tumblr_7d95cccd1ef31aa7696df1b8c0bbae62_850bc8aa_100" src="https://github.com/user-attachments/assets/61cf9b50-9bc9-46f0-9076-32df62def512" />
-<img width="99" height="56" alt="tumblr_8014f1321ca3abd4725417e0eb5c9dbc_54e67329_100" src="https://github.com/user-attachments/assets/8bc23e82-8698-4145-b7eb-c9de1e0c5970" />
+<img width="99" height="56" alt="tumblr_8014f1321ca3abd4725417e0eb5c9dbc_54e67329_100" src="https://github.com/user-attachments/assets/8bc23e82-8698-4145-b7eb-c9de1e0c5970" /><img width="360" height="285" alt="brandbird-stamp (3)-360x285" src="https://github.com/user-attachments/assets/30411cd4-ccb4-4991-a0ce-4305c1deffa5" />
+
 
 
 
